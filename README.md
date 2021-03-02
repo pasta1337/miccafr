@@ -1,4 +1,4 @@
-# Hey! I'm Micca :)
+# Hey! I'm Widzo :)
 
 I'm a Dweeb and a self taught developer
 
@@ -14,6 +14,8 @@ I'm a Dweeb and a self taught developer
 You can always fine me on discord :)
 
 My Discord Server:
-https://discord.gg/GM8XdYSNNU
+https://discord.gg/peaked
+(https://discord.gg/2uYEP5h6Rw)
 
-Micca#1337
+
+Widzo#1337
