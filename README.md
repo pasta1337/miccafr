@@ -7,14 +7,13 @@ I'm a Dweeb and a self taught developer
 
 📚 I’m currently learning everything about c++ 😅
 
-💪🏼 Future Goals: Learn 4 More languages, rely less on others.
+💪🏼 Future Goals: Learn 2 More languages.
 
-⚡ Fun fact: I paste alot.
 
 You can always fine me on discord :)
 
 My Discord Server:
-https://discord.gg/peaked
+https://discord.gg/inverse
 (https://discord.gg/2uYEP5h6Rw)
 
 
