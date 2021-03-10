@@ -1,4 +1,4 @@
-# Hey! I'm Widzo :)
+# Hey! I'm Relentless :)
 
 I'm a Dweeb and a self taught developer
 
@@ -13,8 +13,8 @@ I'm a Dweeb and a self taught developer
 You can always fine me on discord :)
 
 My Discord Server:
-https://discord.gg/inverse
+https://discord.gg/auxx
 (https://discord.gg/2uYEP5h6Rw)
 
 
-Widzo#1337
+Relentless#1337
