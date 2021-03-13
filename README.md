@@ -1,4 +1,4 @@
-# Hey! I'm Relentless :)
+# Hey! I'm Micca (For now lmao) :)
 
 I'm a Dweeb and a self taught developer
 
@@ -13,8 +13,9 @@ I'm a Dweeb and a self taught developer
 You can always fine me on discord :)
 
 My Discord Server:
-https://discord.gg/auxx
-(https://discord.gg/2uYEP5h6Rw)
+https://discord.gg/fgfhhQY8
+
+(OTHER ONE TAPPED)
 
 
-Relentless#1337
+#Skids got ran
