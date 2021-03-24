@@ -1,6 +1,6 @@
 # Hey! I'm Micca (For now lmao) :)
 
-I'm a Dweeb and a self taught developer
+I'm  a self taught developer
 
 
 👨‍💻 I’m currently working on Game Exploitation
@@ -10,12 +10,10 @@ I'm a Dweeb and a self taught developer
 💪🏼 Future Goals: Learn 2 More languages.
 
 
-You can always fine me on discord :)
+You can always find me on discord :)
 
 My Discord Server:
-https://discord.gg/fgfhhQY8
-
+https://discord.gg/rHVpjft2Ss
 (OTHER ONE TAPPED)
 
 
-#Skids got ran
