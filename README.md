@@ -5,15 +5,13 @@ I'm  a self taught developer
 
 👨‍💻 I’m currently working on Game Exploitation
 
-📚 I’m currently learning everything about c++ 😅
+📚 I know alot about cheating and making menu's I am learning Drivers and Communication.
 
-💪🏼 Future Goals: Learn 2 More languages.
+💪🏼 Future Goals: Learn 6 More languages.
 
 
 You can always find me on discord :)
 
-My Discord Server:
-https://discord.gg/rHVpjft2Ss
-(OTHER ONE TAPPED)
+
 
 
